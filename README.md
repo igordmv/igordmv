@@ -1,5 +1,3 @@
-### Hi there 👋
-
 # 💫 About Me:
 🔭 I'm currently working on in Royal Caribbean cruise company<br>👯 I'm looking to collaborate on any project that make people life's better<br>🌱 I'm currently learning KMP and Devops<br>💬 Ask me about Android, I will probably be able to help you :)<br>⚡ Fun fact - I love entrepreneurship, financial investments and Brazilian Jiu-Jitsu<br><br><br><br>
 
